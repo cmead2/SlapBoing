@@ -1,2 +1,2 @@
 # SlapBoing
-Non-essential site. Joke for laughs.
+Non-essential troll sites. A joke for laughs.
